@@ -1,0 +1,1 @@
+# Atividade---George---Sistemas-Operacionais---Alternativas-ao-Windows-NT-2000
